@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @justwhatever-official
+- 👀 I’m interested in Coding web apps
+- 🌱 I’m currently learning React
+- 💞️ I’m looking to collaborate on Social networking apps
+- 📫 How to reach me gavinabuzahra@justwhatever.net
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Im very experienced and very young
